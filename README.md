@@ -1,1 +1,1 @@
-# My token: SweetCandy
+# Degen Token
